@@ -1,4 +1,4 @@
-👋 Hi, I’m @Zestylempire-llc, the creative force behind Zestylempire, a revolutionary gaming venture with a mission to redefine the gaming industry through purposeful and impactful experiences.
+👋 Hi, I’m @Wilbard, the creative force behind Zestylempire, a revolutionary gaming venture with a mission to redefine the gaming industry through purposeful and impactful experiences.
 
 - 👀 I’m interested in crafting immersive gaming experiences that go beyond entertainment, integrating philanthropy into the very fabric of the gaming world.
 
